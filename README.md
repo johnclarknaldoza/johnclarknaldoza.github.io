@@ -1,2 +1,0 @@
-# johnclarknaldoza.github.io
-Resume
